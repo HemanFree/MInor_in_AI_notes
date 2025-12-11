@@ -1,0 +1,1 @@
+# MInor_in_AI_notes
