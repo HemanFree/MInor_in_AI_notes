@@ -1,1 +1,1 @@
-# MInor_in_AI_notes
+# Minor_in_AI_notes
